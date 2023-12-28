@@ -1,1 +1,1 @@
-![:dolpce](https://count.getloli.com/get/@:dolpce)
+![:dolpce](https://count.getloli.com/get/@:dolpce?theme=asoul)
